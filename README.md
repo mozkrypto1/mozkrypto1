@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mozkrypto1 but you can call me anytime.....
-- 👀 I’m interested in github community
+- 👀 I’m interested in github community and connecting people
 
 
 <!---
