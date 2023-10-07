@@ -4,4 +4,4 @@
 
 CRAZY BUT RESPONSIBLE PERSON
 IM MY DESTINDY creator or destiny creator 
-brotherhood is the first 
+brotherhood is the first thing that 
