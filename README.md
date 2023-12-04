@@ -4,7 +4,8 @@
 - write me dm
   - BITOO OR NOT BITOO
 
-- ESPANYOL 
+- ESPANYOL
+- - ENGLASE
 .................
 
   
