@@ -6,6 +6,7 @@
 
 - ESPANYOL
 - - ENGLASE
+  - RUSSIA
 .................
 
   
