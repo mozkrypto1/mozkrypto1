@@ -7,7 +7,8 @@
 - ESPANYOL
 - - ENGLASE
   - RUSSIA
-  - czechia 
+  - czechia -
+  - jugoslavia 
 .................
 
   
