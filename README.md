@@ -10,7 +10,8 @@
   - czechia -
   - jugoslavia
   - slovakia
-  - CHOOSE which country is the best 
+  - CHOOSE which country is the best
+  - or leave comment 
 .................
 
   
