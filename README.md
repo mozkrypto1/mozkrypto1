@@ -9,7 +9,8 @@
   - RUSSIA
   - czechia -
   - jugoslavia
-  - slovakia 
+  - slovakia
+  - CHOOSE which country is the best 
 .................
 
   
