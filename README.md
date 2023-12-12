@@ -2,7 +2,7 @@
 - 👀 I’m interested in github community, connecting people and of course sport.
 - WELCOME IN MY PROFILE :)
 - write me dm
-  - BITOO OR NOT BITOO
+  
 
 - ESPANYOL
 - - ENGLASE
