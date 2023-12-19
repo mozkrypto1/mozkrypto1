@@ -8,7 +8,7 @@
 - - ENGLASE
   - RUSSIA
   - czechia -
-  - jugoslavia
+  - 
   - 
   - 
   - 
