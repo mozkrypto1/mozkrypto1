@@ -7,7 +7,7 @@
 - ESPANYOL
 - - ENGLASE
   - RUSSIA
-  - czechia -
+  - 
   - 
   - 
   - 
