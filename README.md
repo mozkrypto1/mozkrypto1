@@ -6,7 +6,7 @@
 
 - ESPANYOL
 - - ENGLASE
-  - RUSSIA
+  - 
   - 
   - 
   - 
