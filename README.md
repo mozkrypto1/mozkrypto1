@@ -4,7 +4,7 @@
 - write me dm
   
 
-- ESPANYOL
+- 
 - 
   - 
   - 
